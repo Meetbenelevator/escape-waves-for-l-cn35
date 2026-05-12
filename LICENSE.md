@@ -1,4 +1,4 @@
-#  
+#  Experience aura ascension like never before with advanced Script for aura ascension, the #1 Script. Includes no clip and custom skins for unbeatable
 
 
 
